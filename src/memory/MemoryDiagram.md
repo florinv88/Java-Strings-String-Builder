@@ -1,1 +1,1 @@
-![Java Strings Memory](https://imgur.com/gallery/memory-strings-st2jrZg)
+![Java Strings Memory](https://i.imgur.com/rIw6Yxd.jpeg)
